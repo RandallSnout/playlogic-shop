@@ -1,0 +1,1 @@
+# playlogic-shop
